@@ -13,6 +13,18 @@ Examen tercer parcial
 ![image](https://github.com/user-attachments/assets/6e44c846-a614-4d99-82f2-b4b560407317)
 ![image](https://github.com/user-attachments/assets/ed08e643-2e69-4e63-90df-56b7b0abadf1)
 
+# Ejercicio 4
+![image](https://github.com/user-attachments/assets/180ede67-8001-40da-9a2d-d816abeb3fe8)
+![image](https://github.com/user-attachments/assets/3d97121f-c08c-4393-bda9-8d1ca7b71072)
+
+# Ejercicio 5
+![image](https://github.com/user-attachments/assets/b872410e-619b-478a-a464-53e4b357a215)
+![image](https://github.com/user-attachments/assets/50f454a7-cc78-451c-af69-e0ff0d383ff6)
+![image](https://github.com/user-attachments/assets/28582bb4-ba9c-4ffe-9135-ed7b5c51282f)
+
+
+
+
 
 
 
